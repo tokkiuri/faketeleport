@@ -1,7 +1,7 @@
 coming soon sigmas
 
 <p align="center">
-<img src="https://files.catbox.moe/99qtb4.png">
+<img src="">
 </p>
 
 ur literally not cool dude. ^^^^ quit 
