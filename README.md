@@ -1,9 +1,5 @@
 coming soon sigmas
 
 <p align="center">
-<img src="">
+<img src="https://files.catbox.moe/vcr05z.webp">
 </p>
-
-ur literally not cool dude. ^^^^ quit 
-
-stfu
